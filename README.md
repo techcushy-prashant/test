@@ -1,3 +1,5 @@
 ek din mar jayega
 kuttte ki maut
-jag me sb khenge mr gya 
+jag me sb khenge mr gya m.....
+ 
+
